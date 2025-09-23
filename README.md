@@ -1,6 +1,6 @@
 ## Hola 👋 Hi there! 
 
-I am a recovering molecular biologist working on genomics and chronic pain research, now **community builder** working with scientific communities. 
+I am a molecular biologist previously researching genomics and chronic pain physiology, now converted to **community builder** working with scientific communities. 
 
 I am particularly interested in bringing open science and management skills to every researcher, so we can work more efficiently and make science more equitable. 
 I thrive in open communities and love to work in anything related to improving collaboration within the research world 🧬🗺️
